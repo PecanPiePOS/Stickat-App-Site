@@ -1,1 +1,0 @@
-# Stickat-App-Site
